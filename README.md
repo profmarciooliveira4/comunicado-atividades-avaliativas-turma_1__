@@ -1,1 +1,1 @@
-# comunicado-atividades-avaliativas-turma_1__S_
+# comunicado-atividades-avaliativas-turma_1_
